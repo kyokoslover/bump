@@ -8,4 +8,4 @@ VERY SHORT INFO !!
 
 ![image](https://github.com/user-attachments/assets/2e9bcd03-c2ab-4ba3-849e-f14e7ac492e6) i use she/any usually !
 
-> read my patreon to know more about me ^_^
+> read my rentry to know more about me ^_^
